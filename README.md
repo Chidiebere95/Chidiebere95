@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Chidiebere Ezeokwelume
-- 👀 I’m interested in computer softwares
-- 🌱 I’m currently learning web3
+- 👀 I like to build things
+- 🌱  Web3
