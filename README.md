@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Chidiebere Ezeokwelume
 - 👀 I like to build things
-- 🚀 The blockchain 
+- 🚀 The blockchain 😎
